@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭I'm currently working on Desktop Projects<br>🌱I'm currently learning Machine Learning<br>📫 How to reach me: yasemnbcr@gmail.com
+🔭I'm currently working on Desktop Projects<br>🌱I'm currently learning Machine Learning<br>📫 How to reach me: yaseminbicer.dev@gmail.com
 
 
 ## 🌐 Socials:
